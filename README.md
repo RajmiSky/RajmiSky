@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @RajmiSky
+- 📫 Owner: Skyhost
 - 📫 UBERSTRIKE 2025 (Project by Rajmi & HaZard)
 - 📫 https://www.facebook.com/groups/174358285966211/
 - 📫 https://discord.gg/hhxZCBamRT
